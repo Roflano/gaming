@@ -1,1 +1,1 @@
-# gaming
+Gambling is getting more and more popular every year and honestly, I think it’s deserved. The industry keeps getting more modern, offers better conditions for players, and you can really tell the difference. Speaking of new gambling games, [playaviator aviator](https://playaviator.com.gh) definitely stands out. It’s become a great alternative to the games I used to love. Way more fun for me than slots, which let’s be real are kinda boring now.
